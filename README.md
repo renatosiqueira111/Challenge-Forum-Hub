@@ -1,4 +1,3 @@
-VÍDEO DEMONSTRAÇÃO DO FÓRUM HUB:
 
 https://github.com/rrrtent/Challenge-Forum-Hub/assets/134557648/bac56dbc-173d-473b-9b3b-871d8fe58dcb
 
